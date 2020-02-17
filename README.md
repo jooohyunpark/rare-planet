@@ -1,1 +1,1 @@
-Exoplanet 03:22
+Planet 03:22
