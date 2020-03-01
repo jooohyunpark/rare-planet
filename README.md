@@ -1,1 +1,1 @@
-Planet 03:22
+Series of rendered exoplanets.
